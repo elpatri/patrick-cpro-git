@@ -2,3 +2,6 @@
 Repositório para o Workshop na CPRO
 
 dedo no .. e gitaria
+
+lalalalalala
+becghocok
